@@ -1,2 +1,0 @@
-# trinhstein
-Nguyen Dang Trinh 
